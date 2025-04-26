@@ -2,4 +2,4 @@
 - 👀 I’m interested in ur mom
 - 🌱 I’m currently learning nothing
 - 📫 Reach me on Discord @windinho 
-- 😄 Pronouns: windy
+- 😄 Pronouns: are/🚪
